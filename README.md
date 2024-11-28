@@ -1,0 +1,5 @@
+![Screenshot_2024-11-28-20-12-27-949_com codewithandro gmailrecyclerview](https://github.com/user-attachments/assets/8ece4a98-9241-4723-88c9-77294cde803e)
+![Screenshot_2024-11-28-20-12-33-553_com codewithandro gmailrecyclerview](https://github.com/user-attachments/assets/b5a1deaf-2810-41ec-a144-066327f1daad)
+![Screenshot_2024-11-28-20-12-37-063_com codewithandro gmailrecyclerview](https://github.com/user-attachments/assets/a827dc48-fca3-471b-be7f-057aa83151c3)
+![Screenshot_2024-11-28-20-12-41-786_com codewithandro gmailrecyclerview](https://github.com/user-attachments/assets/1f05f2c0-d270-42e7-a15f-bbcf3ddff3df)
+![Screenshot_2024-11-28-20-12-52-159_com codewithandro gmailrecyclerview](https://github.com/user-attachments/assets/8d1d57a1-4bff-4267-99f3-87f759794c00)
